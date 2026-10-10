@@ -10,4 +10,6 @@ Impulsado por la creatividad y un firme compromiso con la responsabilidad y la e
 
 -📫 Como contactarme
 
-   www.linkedin.com/in/harrison-hurtado-rocha-3895b635b                 harry_hr97@hotmail.com      
+   www.linkedin.com/in/harrison-hurtado-rocha-3895b635b                
+   
+   harry_hr97@hotmail.com      
